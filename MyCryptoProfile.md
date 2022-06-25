@@ -1,0 +1,1 @@
+Linking my account shiboshe on GitHub with my address 5CFgKQotnUxCAvnL3vBU32hxtkKAd8trcDeW9p5b43bdFgfC on Substrate in mycryptoprofile.io, and the challenge code is: c02ff91dd839b83fb09a60ff94d2f259. #LitentryVerifyMyAddress
